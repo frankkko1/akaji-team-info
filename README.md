@@ -1,0 +1,1 @@
+# akaji-team-info
